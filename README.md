@@ -1,0 +1,1 @@
+# yc2006.githup.io
